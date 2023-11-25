@@ -6,4 +6,4 @@
 - Currently trying to one day be okay at the guitar!
 
 
-**Contact:** joshuagosscv@gmail.com
+**Contact:** joshuaagoss@outlook.com
